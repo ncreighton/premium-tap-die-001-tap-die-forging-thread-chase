@@ -1,0 +1,2 @@
+# premium-tap-die-001-tap-die-forging-thread-chase
+Are you tired of losing track of your tap and die sets, mixing up thread pitches, or forgetting which die forge you used for that perfect thread chase? This workshop template turns your chaotic notes into a precision-crafted system.  The Tap Die Forging &amp; Thread Chase Craft Workshop is the only Notion template designed specifically for metalworkers
